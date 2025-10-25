@@ -1,15 +1,9 @@
-meu primeiro repositorio
+Meu primeiro repositorio
 
-Minha contribuição
+🌸 Apresentação — Nataniela da Felicidade
 
-Lista de sonhos (alguns)
+Olá! Meu nome é Nataniela da Felicidade, e o próprio nome já carrega um pouco do que acredito: que a vida é feita para ser vivida com leveza, propósito e alegria.
+Sou uma pessoa que valoriza o crescimento, as boas conexões e a busca constante por evolução — seja pessoal, profissional ou espiritual.
 
-Ser Servo Ministerial
-Terminar o COMMOM CORE (42 Luanda)
-Terminar a fau (ISUTIC)
-
-Ser FreeLancer (DEV WEB) enquanto não trabalho numa empresa
-
-Ser programador na TIS ou noutra entidade
-Entender Redes Computadores
-Ir no casamento na Nataniela
+Gosto de espalhar boas energias por onde passo, transformar desafios em aprendizados e inspirar quem me cerca a enxergar o lado positivo das coisas.
+Acredito que a felicidade não é um destino, mas um caminho que se constrói com atitude, gratidão e amor.
